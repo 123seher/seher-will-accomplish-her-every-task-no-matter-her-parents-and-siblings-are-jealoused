@@ -1,0 +1,1 @@
+# seher-will-accomplish-her-every-task-no-matter-her-parents-and-siblings-are-jealoused
